@@ -32,7 +32,7 @@ Der ganze Ansatz ist weil Mann ja mit Frau soll und Gegensätze sich anziehen ab
 
 # Nebeninfo für viele:
 Was will man mit einer die über 8 wochen schwanger war, kannste in die tonne kloppen generell wenn die das andere geschlecht gebumst hat schon im bezug partnerwahl ohne sex sogar, da wenn mann mit frau schläft diese sünde tragen, Teufel ist Titel. Es steht geschrieben, seie so als hättest du niemals mit dem anderem Geschlecht gepennt vorallem auf der Arbeit, sonst verkuppelt man alle zur Menschen nachrproduktion, wer sagt der sinn des lebens sei frau, mann oder kind #erzählmirkeinvompferd -> arschtritt aus dem zehnten stock
-Kann dann nichtmal die Bibel lesen oder googeln, vorallem Leute die meinen die wärns weil die anderes Geschlecht gebumst haben oder Kinder, an sowas denkt man nämlich garnicht. Da versteht man sich nichtmal mit dem Kind, ohne dieses Wissen gibts kein Fortschritt bezug aber Überschrift bis hier.
+Kann dann nichtmal die Bibel lesen oder googeln, vorallem Leute die meinen die wärns weil die anderes Geschlecht gebumst haben oder Kinder, an sowas denkt man nämlich garnicht. Da versteht man sich nichtmal mit dem Kind, ohne dieses Wissen gibts kein Fortschritt und niemals die glücklichkeit ohne sexuelles nehmen lassen vorallem bezug Körperkontakt etc bzw den Stolz, bezug aber Überschrift bis hier.
 
 
 
