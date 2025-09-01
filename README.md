@@ -36,7 +36,7 @@ Kann dann nichtmal die Bibel lesen oder googeln, vorallem Leute die meinen die w
 
 <img width="1500" height="1290" alt="Perfektovllt_upscayl_5x_upscayl-standard-4x" src="https://github.com/user-attachments/assets/93e1e49c-dd70-409f-b324-d20d4cef9257" />
 
-Und Sie wusste.. bei 3 gilt vorallem bezug die Fortpflanzung ausser bei Tieren egal ob Einzahl oder Mehrzahl dass ist wie die Notlüge. Und jeder der Versucht hat diese Regeln zu brechen kam dafür schon die Hölle und wer Sie brach bekam den ewigen Tod und dass nennt sich alle verantwortlichen wenn meine Eltern schon in der Badewanne als Ich baby war meinen Penis angefasst haben und Sie wusste Sie müsste mich durch Raum und Zeit beschützen, aber soweit soetwas bei anderen passiert ist, so bekamen die verantwortlichen den ewigen Tod.
+Und Sie wusste.. bei 3 gilt vorallem bezug die Fortpflanzung ausser bei Tieren egal ob Einzahl oder Mehrzahl dass ist wie die Notlüge. Und jeder der Versucht hat diese Regeln zu brechen kam dafür schon die Hölle und wer Sie brach bekam den ewigen Tod und dass nennt sich alle verantwortlichen wenn meine Eltern schon in der Badewanne als Ich baby war meinen Penis angefasst haben und Sie wusste Sie müsste mich durch Raum und Zeit beschützen, aber soweit soetwas schon bei anderen passiert ist, so bekamen die verantwortlichen den ewigen Tod.
 
 # Fischerwolltsnicht
 
