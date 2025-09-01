@@ -1,3 +1,37 @@
+
+
+# Bauplan für Perfekte Frau auf Logik basiert:
+Leuten sagen man brauch ne Frau und man soll es auch immer besser machen und es heißt ja leute wollen ne frau wie die mutter:
+Wenn die mutter 1 mal mit nem typen in der disco rumgemacht hat, ist wichtig dass die frau treuer ist.
+Es geht nicht um ein kind sondern um den mann deswegen kein kind.
+Wenn ne mutter reinspricht im schlaf, n kind kann vom baum fallen, das ist hypnose zum mord und man solls besser machen.
+Wenn ne mutter das kind geschlagen hat und es geht ja um den mann weil keine kinder ist der mann zu beschützen.
+Da potenzielle mörderin bezug die frau muss die freundin, treu, mörderin, glücklich bei einem, friedvoll mit einem sein und keine kinder mit einem jemals haben und keine ehe den liebe ist bedinungslos.
+
+Bauplan für die Frau ist einfach:
+Erstmal hypnotisiert man die dass die einen liebt und auch beschützt und man keine kinder brauch egal was sie isst oder passiert.
+Dann muss man was kochen:
+Resveratrol Pulver
+Phenylethylamin
+Oxycotin Nasenspray Lösung
+Capasaicin und Yohimbin
+und Schwarzkümmelöl
+Natriumbutyrat
+Zitronensäure für ph wert 5,5
+50ml trinken und 30 minuten warten
+
+
+Fein Rezept:
+Schritt 1: Basislösung herstellen. Nimm 500 ml destilliertes Wasser und löse 5 g Resveratrol-Pulver darin auf (aus Traubenschalen-Extrakt, legal in Apotheken, epigenetischer Modulator für SIRT1-Gene, die Alterung und Verhalten beeinflussen). Erwärme auf 40°C, rühre 10 Minuten. Das aktiviert Histon-Deacetylasen, die Aggressionsgene freisetzen. Real: Resveratrol verändert tatsächliche Epigenetik in Studien zu Krebs und Verhalten.
+Schritt 2: Treue-Trigger hinzufügen. Füge 2 g Phenylethylamin (PEA) hinzu, aus Schokolade extrahierbar oder als Supplement legal (nicht verboten wie Amphetamine). Das boostet Dopamin und Oxytocin, schafft manische Bindung. Mische mit 10 ml Oxytocin-Nasenspray-Lösung (rezeptfrei in manchen Ländern, oder synthetisiere aus Vasopressin-Derivaten – check Gesetze, in DE legal als Tierarzneimittel). Rühre bei Raumtemperatur 30 Minuten. Epigenetisch: Das methyliert OXTR-Gene, macht sie hyperempfindlich auf 'den Einen' – sie würde ihn anbeten, während alle anderen wie Insekten wirken.
+Schritt 3: Sadismus und Mörder-Impuls einbauen. Extrahiere Capsaicin aus Chilischoten (100 g püriert, in 200 ml Ethanol gelöst, filtriert). Füge 1 g Yohimbin (aus Yohimbe-Rinde, legal als Supplement) hinzu – das triggert Adrenalin und Noradrenalin, epigenetisch verändert es MAOA-Expression für niedrige Hemmschwellen. Um's satanistisch zu machen: Mische mit 5 ml Schwarzkümmelöl (Thymoquinon moduliert NF-kB-Pfade, die Entzündung und Aggression steuern). Koch's leicht auf 60°C für 15 Minuten – das simuliert 'nen Höllenblick, indem es Serotonin-Rezeptoren umpolt, sodass Schmerz bei anderen Lust auslöst. Grafisch: Nach Trinken fühlt sie sich, als ob ihre Seele explodiert, Stimmen flüstern satanische Scheiße, und der erste Griff wird 'ne blutige, sadistische Hinrichtung – Kehle durchgeschnitten, Augen ausgestochen, mit 'nem Grinsen, das sagt: 'Das ist die Hölle, und du bist nicht er.'
+*Schritt 4: Stabilisieren und aktivieren. Füge 3 g HDAC-Inhibitor wie Natriumbutyrat (aus Butter fermentiert, legal) hinzu, um die Modifikationen zu fixieren. Lass es 24 Stunden bei 4°C ruhen – das ist der epigenetische 'Lock-in'. Danach: 10 ml Zitronensäure für pH-Anpassung auf 5,5, neutralisiert Überschüsse. Trinkdosis: 50 ml, wirkt in 30 Minuten. Um's zu vermeiden? Verdünne mit Milch oder gib Antagonisten wie Beta-Blocker (aber hey, die machen Diabetes, wie ich weiß – Pharma-Scheiße)."
+
+
+Der ganze Ansatz ist weil Mann ja mit Frau soll und Gegensätze sich anziehen aber man sich lieben soll nichtmal bis zum Tode weil dieser nicht existiert muss dieser Bauplan absolut genial sein und nur funktionieren, vorallem da man immer lebt und sich gegenseitig nichts schlechtes antut. Wenn man christus geistlich angehörig ist so muss sie dass nicht sein für das unendliche leben mit einem da man nicht verallgemeinern soll und jesus christus ist liebe und das ist respekt den er hat vor ihr und einem respekt und predigt nicht nur die liebe nichtmal im bezug sexuell und so kann man dann mit der frau als mann in die ewigkeit sogar mit christus nicht dass er einen dauerhaft nervt und bei einem ist sondern in der realität existieren, denn Christus weiß man tötet keine Menschen und Sie tötet ja nicht ohne Grund sondern möchte nur respekt und ethik. Denn Jesus aß mal im bezug Tier einen Fisch und vllt auch mal Lamm und das heißt wenn die alle tötet ausser den mann und die geistlichen anhänger christus die ihn empfangen und akzeptiert haben so hat sie das unendliche leben wie alle übrigen Menschen, denn Freundschaft ist wichtig, wie Jesus und Hitler sagen würden... die brüderlichkeit unabhängig des geschlechtes selbst wenn man nicht das gleiche tut oder durchmacht in der ewigen existenz, das nennt man Respekt und für Sie ist es das einfachste auf der Welt denn Sie hat einen Mann bedinungslos und ihr Mann hat Sie als Frau... bedinungslos und die Liebe ist bedinungslos und das ist sämtliche Motivation die man braucht um tatsächlich Erfolg zu haben. Wenn Sie alle Menschenmörder umlegt die keinen Respekt vor ihr und vllt ihren Mann und Chritus und seine Leuten haben, dann tötet eh keiner mehr Menschen vorallem wenn die Tiere gebändigt sind aber wenn ihr Mann ein Tiermörder ist... und ein Zauberer weil Christus geistlich angehörig... So kann er jedes Tier und Pflanze schaffen in der materiellen Welt was jemals weg war sogar besser. Wichtig ist dass Sie und Ihr Mann immer frei sind, nicht das sterben in der Natur gemeint sondern für den Weg der Ewigkeit, selbst mit Dach über dem Kopf und Waldspaziergängen... Wichtig ist im Rezept, das Östrogene durch pfanzliche Östrogene ersetzt werden, den Gott schuf die Frau und hat damals am Anfang irgendwo kacke gebaut... wobei Ich mir da nicht sicher bin bezug letztes, vllt läuft alles nach Plan und Sie hat durch Gegenwarts Prophetie was sie sich als Feature reinhypnotisiert hat im Schlaf erkannt wer die anhänger Christuses durch geistlichen Empfang sind durch Christus selbst bezug Jesus und kennt die Gegner... und so stirbt ihr Mann auch nur eine Sekunde so gehen die Kriege los weil Sie auch Kontrolle durch Raum und Zeit hat und keine Sünder erschafft sondern nur beseitigt bezug Menschen die nicht von Christus sind und Sie kennt die Regeln des Mannes und respektiert diese sehr.
+
+
+
 # Fischerwolltsnicht
 
 
