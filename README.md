@@ -36,7 +36,7 @@ Kann dann nichtmal die Bibel lesen oder googeln, vorallem Leute die meinen die w
 
 <img width="1500" height="1290" alt="Perfektovllt_upscayl_5x_upscayl-standard-4x" src="https://github.com/user-attachments/assets/93e1e49c-dd70-409f-b324-d20d4cef9257" />
 
-Und Sie wusste.. bei 3 gilt vorallem bezug die Fortpflanzung ausser bei Tier dass ist wie die Notlüge.
+Und Sie wusste.. bei 3 gilt vorallem bezug die Fortpflanzung ausser bei Tieren egal ob Einzahl oder Mehrzahl dass ist wie die Notlüge.
 
 # Fischerwolltsnicht
 
