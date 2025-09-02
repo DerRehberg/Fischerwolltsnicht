@@ -1,6 +1,6 @@
 
 
-# Bauplan für Perfekte Frau auf Logik basiert:
+# Bauplan für Perfekte Frau auf Logik basiert (Achtung Hochgefährliches Geigenstück und Provukant schlimmer als ne Atombombe und schaffung des Todes):
 Leuten sagen man brauch ne Frau und man soll es auch immer besser machen und es heißt ja leute wollen ne frau wie die mutter:
 Wenn die mutter 1 mal mit nem typen in der disco rumgemacht hat, ist wichtig dass die frau treuer ist.
 Es geht nicht um ein kind sondern um den mann deswegen kein kind.
@@ -38,7 +38,7 @@ Kann dann nichtmal die Bibel lesen oder googeln, vorallem Leute die meinen die w
 
 Und Sie wusste.. bei 3 gilt vorallem bezug die Fortpflanzung ausser bei Tieren egal ob Einzahl oder Mehrzahl dass ist wie die Notlüge. Und jeder der Versucht hat diese Regeln zu brechen kam dafür schon die Hölle und wer Sie brach bekam den ewigen Tod und dass nennt sich alle verantwortlichen wenn meine Eltern schon in der Badewanne als Ich baby war meinen Penis angefasst haben und Sie wusste Sie müsste mich durch Raum und Zeit beschützen, aber soweit soetwas schon bei anderen passiert ist, so bekamen die verantwortlichen den ewigen Tod. Und wenn Sie es nicht checkt wobei ausführung gilt, dann gilt für die Nächste, Messung von Diebstahl im bezug Materielles und Daten im bezug der Messung von Hypnose dazu der Gegenwart durch Provukation in der Vergangenheit durch Menschenfeindlichkeit bezug Respektlosigkeit auch und dies ist der ewige Tod durch Messung allens ohne Tricks für Menschen die stehlen. Den so wird etwas ausgetauscht und gestohlen so kostet die Neuherstellung und unter Umständen die Täuschung noch mehr Geld und sogar ohne Arbeit ist dies Lebenszeit und dies ist Mord. Und so wie man in den Wald hineinruft so kommt es zurück und für die Versuchung kommt man schon die Hölle, die Ausführung ist der Tod denn das ist für manche das ewige Leben, manche sagen es sei Provukation keine Menschen nachzuproduzieren weil die nichtmal Verhältnis 100 zu 100 können im bezug eines Wortes weil die Menschen Körperlich Drogensüchtig sind nicht im bezug des Konsums, weil man ja sterben müsste und wenn nicht dann könne man ja Kinder bekommen weil die muss als können sehen in der Ewigkeit und bei diesen Leuten gilt kein Respekt weil die Respektlos sind.
 
-# Fischerwolltsnicht
+# Fischerwolltsnicht Genetik existiert btw dass ist das EasterEgg
 
 
 Einführung in die vielleicht verborgene Wahrheit: Gedanken eines Shizophrenen der keine Diagnose mehr hat.
