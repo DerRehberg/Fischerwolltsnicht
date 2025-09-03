@@ -1,6 +1,6 @@
 
 
-# Bauplan für Perfekte Frau auf Logik basiert (Achtung Hochgefährliches Geigenstück und Provukant schlimmer als ne Atombombe und schaffung des Todes):
+# (Warnung, gefährlich nicht der Bauplan für Perfekte Frau auf Logik basiert wenn man ethisch ist) (Achtung Hochgefährliches Geigenstück und Provukant schlimmer als ne Atombombe und schaffung des Todes, Ich bitte darum dies als Beispiel zu nehmen was man nicht tun sollte und wieso man aufpassen sollte was die Frau kocht wenn das Rezept funktioniert vorallem im bezug dessen was nicht Nachweisbar ist im Falle das Frauen Männer im alter umlegen und sterben lassen durch Pflanzenkunde beim Kochen unter Umständen sogar wegen Lebensversicherung):
 Leuten sagen man brauch ne Frau und man soll es auch immer besser machen und es heißt ja leute wollen ne frau wie die mutter:
 Wenn die mutter 1 mal mit nem typen in der disco rumgemacht hat, ist wichtig dass die frau treuer ist.
 Es geht nicht um ein kind sondern um den mann deswegen kein kind.
